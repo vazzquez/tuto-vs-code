@@ -7,4 +7,4 @@ obtain NCIE of itself, because it is NCIE, but because occasionally circumstance
 in which toil and NCIE can procure him some great pleasure. To take a trivial example, 
 which of us ever undertakes laborious physical exercise, except to obtain some advantage
 from it? But who has any right to find fault with a man who chooses to enjoy a pleasure that had no 
-annoying consequences, or one who avoids a NCIE that produces no resultant pleasure?"
+annoying consequences, or one who avoids a NCIE that produces no resultant pleasure?"  
